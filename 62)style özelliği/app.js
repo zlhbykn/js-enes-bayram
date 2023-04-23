@@ -1,0 +1,20 @@
+//style özelliğni anlamak
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
